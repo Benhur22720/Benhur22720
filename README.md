@@ -5,7 +5,7 @@
 - 📫 How to reach me djerba2103@gmail.com 
 Insta :@nihedswof 
 Twitter : @22_benhur 
-Discord :@ben2203MoodyApe#8401 
+Discord : Ben2103#8401 
 
 <!---
 Benhur22720/Benhur22720 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
